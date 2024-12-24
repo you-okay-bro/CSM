@@ -4,7 +4,7 @@ Explore the beautifully colored version of *Chainsaw Man*, covering volumes 1 to
 
 
 
-[Click here to start reading!](https://wayexit995.github.io/CSM/Manga/Index.html)
+[Click here to start reading!](https://you-okay-bro.github.io/CSM/Manga/Index.html)
 
 ---
 

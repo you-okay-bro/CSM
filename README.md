@@ -8,7 +8,7 @@ Explore the beautifully colored version of *Chainsaw Man*, covering volumes 1 to
 
 ---
 
-![Reze and Denji](https://raw.githubusercontent.com/you-okay-bro/CSM/refs/heads/main/Manga/img/370852667_122098044134026433_3259430490755712967_n.jpg)
+![Reze and Denji](https://raw.githubusercontent.com/you-okay-bro/CSM/refs/heads/main/Manga/img/reze-denji.jpg)
 *Reze and Denji from Chainsaw Man*
 
 
